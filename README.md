@@ -1,2 +1,2 @@
 # Homework-
-tell me about yourself 
+Hi, my name is Charlotte and I live in Charlotte, what a coincidence 
